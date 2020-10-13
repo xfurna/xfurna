@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-> Coming soon...
-
 ![doggo-codes](https://p.kindpng.com/picc/s/775-7752343_doge-doge-meme-2020-hd-png-download.png)
 
 ![visitors](https://visitor-badge.glitch.me/badge?page_id=evi1haxor.visitor-badge)
